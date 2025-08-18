@@ -5,6 +5,6 @@
 </p>
 ㅤ
 -<p align="center">
-kadenㅤ ㅤpencil
+kadenㅤㅤ<b>pencil</b>
 </p>
 ㅤ
