@@ -7,4 +7,11 @@
 <p align="center">
 kadenㅤㅤ<b>pencil</b>
 </p>
-ㅤ
+
+<p align="center">
+♡
+</p>
+
+<p align="center">
+ㅤ<a href="https://pronouns.cc/@pencilbfdi">prns.cc</a>ㅤㅤㅤㅤrentryㅤㅤㅤㅤstrwpage
+</p>
