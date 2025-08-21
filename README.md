@@ -13,7 +13,7 @@ kadenㅤㅤ<b>pencil</b>
 </p>
 
 <p align="center">
-ㅤ<a href="https://pronouns.cc/@pencilbfdi">prns.cc</a>ㅤㅤㅤㅤrentryㅤㅤㅤㅤstrwpage
+ㅤ<a href="https://pronouns.cc/@pencilbfdi">prns.cc</a>ㅤㅤㅤㅤ<a href="https://rentry.co/leafcilyuri">rentry</a>ㅤㅤㅤㅤstrwpage
 </p>
 ㅤ
 ㅤ
